@@ -8,3 +8,7 @@
 - 😄 Pronouns: He / Him
 - ✈️ Love: Flying Drones
 - 🎈 Algorithm Competition Lover
+
+# Connect with Me
+
+- 📧 Email：2354839650@qq.com
