@@ -7,7 +7,7 @@
 - 🎓 16 year-old high school student
 - 😄 Pronouns: He / Him
 - 🎈 Algorithm Competition Lover
-- ✈️ Love Flying Drones
+- ✈️ Love Driving Drones
 - 📸 A Photography Enthusiast
 
 Please give me more guidance!
