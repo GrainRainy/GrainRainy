@@ -4,17 +4,17 @@
 
 ## # About me
 
-- 🎓 16 Year-old High School Student
-- 😄 Pronouns: He / Him
-- ✨ A Steadfast Idealist
-- 🎈 An Algorithm Competition Lover
-- 📸 A Photography Enthusiast
-- ✈️ Love Driving Drones
+- 🎓 16 Year-old High School Student. 
+- 😄 Pronouns: He / Him. 
+- ✨ A Steadfast Idealist. 
+- 🎈 An Algorithm Competition Lover. 
+- 📸 A Photography Enthusiast. 
+- ✈️ Love Driving Drones. 
 
 ## # Connect with Me
 
-- 📧 Email：2354839650@qq.com
+- 📧 Email：2354839650@qq.com. 
 
 ## # Personal Site
 
-- 💻 Site url: https://grainrain.site
+- 💻 Site url: https://grainrain.site. 
