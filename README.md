@@ -1,4 +1,4 @@
-![Typing SVG](https://readme-typing-svg.demolab.com?font=Caveat&size=40&pause=1000&color=08538A&vCenter=true&width=435&lines=Stay+Hungry%2C+Stay+Foolish.)
+![Typing SVG](https://readme-typing-svg.demolab.com?font=Caveat&size=45&pause=1000&color=08538A&vCenter=true&width=435&lines=Stay+Hungry%2C+Stay+Foolish.)
 
 ## # About me
 
