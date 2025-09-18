@@ -11,7 +11,7 @@
 
 ## # Connect with Me
 
-- 📧 Email：2354839650@qq.com. 
+- 📧 Email：jingxugu5@gmail.com. 
 
 ## # Personal Site
 
