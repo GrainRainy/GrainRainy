@@ -15,4 +15,5 @@
 
 ## # Personal Site
 
-- 💻 Site url: https://grainrain.site. 
+- 💻 Academic Site url: https://jingxugu.com.
+- 🖥️ Blog：https://blog.jingxugu.com
