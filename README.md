@@ -2,7 +2,7 @@
 
 ## # About me
 
-- 🎓 18 Year-old NJUer. 
+- 🎓 19 Year-old NJUer. 
 - 😄 Pronouns: He / Him. 
 - ✨ A Steadfast Idealist. 
 - 🎈 Geeking out about Algorithm. 
